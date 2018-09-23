@@ -1,7 +1,7 @@
 # Sách Trang Tử
 
 > Nội dung đăng tải ở đây đã được lược giản.  
-> Bạn có thể tìm đọc bản đầy đủ "Trang Tử và Nam Hoa Kinh" của cụ Nguyễn Hiến Lê.
+> Bạn có thể tìm đọc bản đầy đủ sách "Trang Tử và Nam Hoa Kinh" của cụ Nguyễn Hiến Lê.
 
 [Lời Mở Đầu &rarr;](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/00-loi-mo-dau.md)
 
