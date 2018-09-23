@@ -3,8 +3,6 @@
 > Nội dung đăng tải ở đây đã được lược giản.  
 > Bạn có thể tìm đọc bản đầy đủ sách "Trang Tử và Nam Hoa Kinh" của cụ Nguyễn Hiến Lê.
 
-[Lời Mở Đầu &rarr;](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/00-loi-mo-dau.md)
-
 [Thiên 1: Tiêu Dao Du](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/01-tieu-dao-du.md)  
 [Thiên 2: Tề Vật Luận](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/02-te-vat-luan.md)  
 [Thiên 3: Dưỡng Sinh Chú](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/03-duong-sinh-chu.md)  
