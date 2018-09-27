@@ -1,6 +1,6 @@
 # Sách Trang Tử
 
-> Nội dung đăng tải ở đây đã được lược giản.  
+> Nội dung đăng tải tại đây đã được lược giản.  
 > Bạn có thể tìm đọc bản đầy đủ sách "Trang Tử và Nam Hoa Kinh" của cụ Nguyễn Hiến Lê.
 
 [Thiên 1: Tiêu Dao Du](https://github.com/thaicuc/sach-trang-tu/blob/master/contents/01-tieu-dao-du.md)  
