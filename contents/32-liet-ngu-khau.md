@@ -23,8 +23,8 @@ giao trọng trách cho tôi, xét xem tôi có được việc không. Vì vậ
 
 Bá Hôn Mâu Nhân bảo:
 
-"Anh nhận xét sáng suốt đấy. Nhưng dù anh chỉ làm một thường dân thì người ta
-vẫn sẽ qui phụ anh."
+"Anh nhận xét sáng suốt đấy. Nhưng cho dù anh chỉ làm một thường dân thì người 
+ta vẫn sẽ qui phụ anh."
 
 Ít lâu sau, lại nhà Liệt Ngự Khấu, thấy dép để đầy ngoài cửa, Bá Hôn Mâu Nhân
 đứng hướng về phương Bắc, cằm tì vào chiếc gậy, một lát rồi lặng thinh đi về.
