@@ -89,8 +89,8 @@ của vạn vật.
 
 Bậc chí nhân đưa tinh thần về chỗ Vô thuỷ mà vui ở chỗ Hư vô; như nước chảy mà
 không có hình tích, phát tiết ở chỗ cực trong sạch. Buồn thay! Trí tuệ cho anh
-biết được cái nhỏ nhặt như ngọn của sợi lông mà không biết được cái đạo lớn
-yên tĩnh.
+biết được cái nhỏ nhặt như ngọn của sợi lông mà không thể cho anh biết được cái 
+đạo lớn yên tĩnh.
 
 ***
 
