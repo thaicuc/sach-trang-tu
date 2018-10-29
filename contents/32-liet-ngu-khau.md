@@ -132,14 +132,14 @@ tuỳ thuận tự nhiên, mà hiểu vận mệnh thì tuỳ ngộ nhi an.
 
 ***
 
-Một người lại bái kiến vua Tống, được ân tứ mười cổ xe, đánh mười cổ xe đó lại
+Một người lại bái kiến vua Tống, được ân tứ mười cỗ xe, đánh mười cỗ xe đó lại
 khoe Trang tử, Trang tử bảo:
 
 "Trên bờ Hoàng Hà có một gia đình nghèo, sống nhờ nghề đan cỏ ngải. Một hôm một
 người con lặn xuống vực, vớt được một viên ngọc châu đáng giá ngàn vàng. Người
 cha bảo con: Lấy một phiến đá đập bể nó đi! Một viên ngọc đáng giá ngàn vàng
 tất phải ở dưới cằm một con rồng đen trong một vực sâu chín đợt. Con lấy được
-nó chắc là trong khi con rồng đó ngủ; nó tỉnh dậy thì còn gì là đời con nữa!.
+nó chắc là trong khi con rồng đó ngủ. Nó tỉnh dậy thì còn gì là đời con nữa!
 Nước Tống ngày nay còn sâu hơn cái vực chín đợt, mà vua Tống còn hung dữ hơn
 con rồng kia nữa. Chú được mười cỗ xe đó chắc là trong lúc ông ta ngủ; ông ấy
 mà tỉnh dậy thì tất chú bị nát thây mất."
@@ -168,6 +168,6 @@ Dùng cái không quân bình để quân bình vạn vật, thì cái quân bì
 phải là quân bình thực sự. Dùng cái không ứng nghiệm để ứng nghiệm vạn vật thì
 cái ứng nghiệm đó không phải là ứng nghiệm thực sự. Trí thông minh bị ngoại vật
 sai khiến, duy chỉ có sự thần linh là ứng nghiệm được vạn vật. Trí thông minh
-không bằng sự thần linh, điều đó ai cũng biết từ lâu rồi. Vậy mà kẻ ngu muội vẫn
-trông cậy vào trí thông minh, chìm đắm vào nhân sự, dụng công vô ích. Đáng
+không bằng sự thần linh, điều đó ai cũng biết từ lâu rồi. Vậy mà kẻ ngu muội 
+vẫn trông cậy vào trí thông minh, chìm đắm vào nhân sự, dụng công vô ích. Đáng
 thương thay!
