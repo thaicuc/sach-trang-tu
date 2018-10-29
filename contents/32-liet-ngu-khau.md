@@ -45,8 +45,8 @@ nhỏ nhen của họ có hại như thuốc độc đấy. Anh mê muội, khô
 sao có thể cải hoá anh được.
 
 Kẻ khéo léo thì lao khổ; Kẻ thông minh thì đa ưu; Người bất tài thì vô sự. Họ
-ăn no rồi không cầu gì cả, họ ngao du như một chiếc thuyền không bị cột. Họ hư
-tâm mà ngao du."
+ăn no rồi ngao du như một chiếc thuyền không bị cột. Họ không cầu gì cả, chỉ 
+hư tâm mà ngao du."
 
 ***
 
